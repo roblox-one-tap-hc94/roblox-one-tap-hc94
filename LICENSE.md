@@ -1,4 +1,4 @@
-
+smart Script for roblox steal a brainrot - auto-sell and one-hit kill is the best roblox steal a brainrot Script, featuring auto-sell and one-hit
 
 
 ---
